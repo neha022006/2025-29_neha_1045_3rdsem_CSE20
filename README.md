@@ -1,0 +1,2 @@
+# 2025-29_neha_1045_3rdsem_CSE20
+IINTERNSHIP tasks
